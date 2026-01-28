@@ -16,4 +16,4 @@ This skill is not directed at children under the age of 13.
 
 ## Contact
 If you have questions about this privacy policy, contact:
-Email: double.waffle.mc@gmail.com
+Email:notmypersonalemail@gmail.com
